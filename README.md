@@ -10,20 +10,27 @@ By Kyouka Official &amp; ZaBot-MD SC masih Private Klo Uda Di Fix  !! Preview Bo
 https://shiori-hashiba.vercel.app
 
 
-Previe Menu 
-Fake IG
+Preview Menu 
+Fake IG (Punya Sad Multi Device)
+
 1)
 <p align="center">
   <a href="https://github.com/Yuri-Neko"><img src="https://b.top4top.io/p_2378k1as41.jpg" /></a>
 </p>
-(Punya Sad Multi Device)
+
 
 Gif Tenor Menu
+
 2)
+<p align="center">
+  <a href="https://github.com/Yuri-Neko"><img src="https://c.top4top.io/p_23788crsl1.jpg" /></a>
+</p>
 
-https://c.top4top.io/p_23788crsl1.jpg
+List Menu (Punya kannabotz)
 
-List Menu
 3)
 
-https://e.top4top.io/p_23789dl1f1.jpg (Punya kannabotz)
+<p align="center">
+  <a href="https://github.com/Yuri-Neko"><img src="https://e.top4top.io/p_23789dl1f1.jpg " /></a>
+</p>
+
