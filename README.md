@@ -31,6 +31,6 @@ List Menu (Punya kannabotz)
 3)
 
 <p align="center">
-  <a href="https://github.com/Yuri-Neko"><img src="https://e.top4top.io/p_23789dl1f1.jpg " /></a>
+  <a href="https://github.com/Yuri-Neko"><img src="https://e.top4top.io/p_23789dl1f1.jpg" /></a>
 </p>
 
