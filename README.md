@@ -13,8 +13,10 @@ https://shiori-hashiba.vercel.app
 Previe Menu 
 Fake IG
 1)
-
-https://b.top4top.io/p_2378k1as41.jpg (Punya Sad Multi Device)
+<p align="center">
+  <a href="https://github.com/Yuri-Neko"><img src="https://b.top4top.io/p_2378k1as41.jpg" /></a>
+</p>
+(Punya Sad Multi Device)
 
 Gif Tenor Menu
 2)
